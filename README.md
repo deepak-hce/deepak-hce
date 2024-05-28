@@ -22,4 +22,4 @@ I'm always open to collaborating on exciting projects and discussing the latest 
 **Email:** deepak_hce@outlook.com  
 **LinkedIn:** [Deepak Kumar](https://www.linkedin.com/in/deepak-kumar-001a89152/)
 
-Thank you for visiting my GitHub profile! Explore my repositories to see my coding journey and the projects I've contributed to. Let's create innovative solutions and make a positive impact in the world of technology. Happy coding! 😊
+Thank you for visiting my GitHub profile! Happy coding! 😊
